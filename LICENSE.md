@@ -1,4 +1,4 @@
-# 
+# Enhance Descript for macOS with instant Descript for macOS Filter | multi-cam-editing + time-remapping, the #1 filter. Includes multi-cam-editing and time-remapping for a smoother
 
 
 
